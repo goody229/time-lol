@@ -1,0 +1,2 @@
+# time-lol
+About life
